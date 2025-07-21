@@ -3,3 +3,4 @@ some fun code I have been working with the help of Microsoft copilot and other A
 I have a computer systems information technology diploma
 looking to contribute more to github
 25 years old Polish-Canadian living in Canada
+Clamshell ascii is slightly skewed... annoying but i will try to update later....
